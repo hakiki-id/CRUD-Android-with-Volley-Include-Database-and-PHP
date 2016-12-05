@@ -13,8 +13,8 @@ LIKE COMMENT AND DONT FORGET TO SUBSCRIBE
 
 like dan follow sosmedku pisan rek ! :D
 
-Instragram : hakiki95
-Github : hakiki95
+Instragram : hakiki95 <br />
+Github : hakiki95   <br />
 facebook : hakiki95official
 
 
