@@ -20,11 +20,9 @@ video tutorial step-step membuat aplikasi sederhana ini bisa dilihat dan ditonto
 
 
 # LINK
-like dan follow sosmedku pisan rek ! :D
-
-Instragram : [Hakiki95](www.instagram.com/hakiki95)
-
-facebook : [hakiki95official](www.facebook.com/hakiki95official)
+like dan follow sosmedku pisan rek ! :D <br />
+Instragram : [Hakiki95](www.instagram.com/hakiki95)<br />
+facebook : [hakiki95official](www.facebook.com/hakiki95official)<br />
 
 
 >end the end
